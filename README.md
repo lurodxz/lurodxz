@@ -1,4 +1,4 @@
-## Hi! 👋
+## Hi! I'am Lurodxz👋
 
 <!--
 **lurodxz/lurodxz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
